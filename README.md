@@ -1,5 +1,5 @@
 ### Hello ✨
 
-##Let's build convivial systems
+## Let's build convivial systems
 
-reach via Keybase @ [dreamscheme](https://keybase.io/dreamscheme)
+reach me via Keybase @ [dreamscheme](https://keybase.io/dreamscheme)
