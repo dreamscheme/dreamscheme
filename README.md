@@ -2,4 +2,4 @@
 
 ## let's build convivial systems
 
-reach me via Keybase @ [dreamscheme](https://keybase.io/dreamscheme)
+I'm reachable on Keybase @ [dreamscheme](https://keybase.io/dreamscheme)
